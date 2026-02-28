@@ -1,4 +1,4 @@
-- 👋 Hi, I’m (not) @Kareem-Haydar
-- 📫 How to reach me: don't
+- 👋 Hi, I’m @Kareem-Haydar
+- 📫 How to reach me: idk 
 - 😄 Pronouns: iPhone 17 pro max ultra deluxe extreme giga plus extra super mega 5G filp 
 - ⚡ Fun fact: run curl ASCII.live/can-you-hear-me in the windows command prompt
